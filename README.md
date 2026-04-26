@@ -1,2 +1,2 @@
-# eiefq
-Infinite Now \221E
+
+verify | veritas 
